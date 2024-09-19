@@ -38,7 +38,7 @@ Linguistics is not about trying to establish and enforce on variety of language 
 
 
 
-3:04
+3:04    
 
 
 
